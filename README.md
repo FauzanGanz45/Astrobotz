@@ -1,2 +1,2 @@
 # Astrobotz
-Follow
+Sc Gratis Jangan Dijual Belikan
